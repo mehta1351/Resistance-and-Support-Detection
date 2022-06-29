@@ -1,0 +1,1 @@
+# Resistance-and-Support-Detection
